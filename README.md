@@ -1,2 +1,5 @@
 # CASE-AGENTES-DE-INOVA-O---EMPRESA-FICT-CIA_-ELETROTECH
 CASE AGENTES DE INOVAÇÃO -  EMPRESA FICTÍCIA_ ELETROTECH.
+
+Case:
+https://drive.google.com/file/d/1-rQMGrio9GXHGVazJBLtsL_RKTKtl7DX/view?usp=sharing
